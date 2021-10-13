@@ -15,11 +15,12 @@ Vous pouvez préouvrir un compte via le site de la banque bna.dz
 
 ## Social
 
-- Groupe Facebook https://www.facebook.com/groups/346360749240912
 - Page Facebook https://www.facebook.com/bnalgerie/
 - Instagram https://www.instagram.com/bnalgerie
 - Chaine YouTube https://www.youtube.com/channel/UChmBIQSc8GlZ3V8399XD7ew
 - Page Linkedin https://www.linkedin.com/company/bnalgerie/
+
+Groupe Facebook https://www.facebook.com/groups/346360749240912
 
 ## Les documents de la BNA 
 
